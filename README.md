@@ -1,0 +1,2 @@
+# skola
+miro je kokt
